@@ -1,16 +1,41 @@
-## Hi there 👋
+⠀⠀ ⠀⠀ ⠀⠀ ![](https://files.catbox.moe/zm1d9j.png)
 
-<!--
-**DlGNITY/DlGNITY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀ENBY ⠀ FEMININE ⠀GIRLBOY, ⠀ 17YO ⠀⚣ ⠀
+⠀ ⠀ ⠀ ⠀ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⠀ ⠀⠀ ⠀⠀ ⠀ESOTERIC ⠀ MULTIFANDOM ⠀ ARTIST ⠀ WHO ⠀ ♡'S ⠀ RBLX ⠀ 
+
+
+⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀  ⠀⠀⠀[MORE ⠀ INFO ⠀ HERE](https://rentry.co/seiIdirectory)
+
+⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ____________________________________
+
+⠀ ⠀⠀ ⠀⠀ ⠀　　　　　　　　　01:　 MEDIAS
+ 　
+
+　　　　　　　　　　　　　　　
+               FORSAKEN
+
+　　　　　　　　　PWNED BY 14:00　　SEWHAPPEN　　
+
+　　　ROBLOX  ARGS　　ADMINS　　BLOCK  TALES　　ROBLOX  MYTHS
+
+　8:11　　MAY MADNESS 2012　　HOMESTUCK　　ULTRAKILL　　IHNMAIMS
+
+　　　　　　　　　　　 LITERALLY  MOST RBLX MEDIA
+
+　　　　　　　　　　　　　　　　　　___
+                  
+⠀ ⠀⠀ ⠀⠀ ⠀　　　　　　　　　　02:　 RULES
+ 　
+　　　　　　　　　　　　　　　　
+                              
+
+　　　　　　　NO DNI IHF　　(ESPECIALLY IF U ANNOY ME, NO HARD FEELS)　　
+
+　　　　　USUALLY　SEEN　AROUND　[HIM OF ALL PEOPLE](https://github.com/ZUKANITY),　C+H　ALWAYS　>_<
+
+SYSTEM,　CURRENT PONY ≠ FRONT　　**I'M VERY SHY!!**　NOT IGNORING YOU I PROMISE
+
+　　　　　　　　　**__WHISPER TO ME OR I WILL NOT SEE UR MESSAGES__**
