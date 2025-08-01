@@ -1,7 +1,7 @@
 ⠀⠀ ⠀⠀ ⠀⠀ ![](https://files.catbox.moe/zm1d9j.png)
 
 
-⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀ENBY ⠀ FEMININE ⠀GIRLBOY, ⠀ 17YO ⠀⚣ ⠀
+⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀⠀ENBY ⠀ FUTCH ⠀ SAPPHILLIAN, ⠀ 17YO ⠀⚣ ⠀
 ⠀ ⠀ ⠀ ⠀ 
 
 ⠀ ⠀⠀ ⠀⠀ ⠀ESOTERIC ⠀ MULTIFANDOM ⠀ ARTIST ⠀ WHO ⠀ ♡'S ⠀ RBLX ⠀ 
